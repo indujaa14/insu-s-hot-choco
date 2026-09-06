@@ -1,0 +1,1 @@
+this web is made to make people feel warm during chilly days. when u click the sip button it generates some kind words to make u feel warm and when u click the stir button it gives u a fortune to make sure u take the right choices in ur life
